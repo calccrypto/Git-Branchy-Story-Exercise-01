@@ -1,1 +1,1 @@
-Is violating international copyright laws
+Is violating international copyright laws.
